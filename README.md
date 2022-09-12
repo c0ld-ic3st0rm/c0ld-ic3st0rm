@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @c0ld-ic3st0rm
+- 👀 I’m interested in: Game Making/Mod Making
+- 🌱 I’m currently learning: Computer Science
+- 💞️ I’m looking to collaborate on: N/A
+- 📫 How to reach me: N/A
